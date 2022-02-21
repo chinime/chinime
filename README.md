@@ -5,7 +5,7 @@
  
  How to reach me:
  
- Mail: chinmoybiswas01.cb@gmail.com
+ Mail: chinmoybiswas@ug.eee.buet.ac.bd
  
  Facebook: https://www.facebook.com/chinmoy.biswas.3194/
 
