@@ -1,5 +1,5 @@
  Hi, I’m Chinmoy Biswas.
- I’m currently a sophomore at BUET, pursuing EEE and
+ I’m currently a junior at BUET, pursuing EEE and
  I’m interested in Maths, Computer Science, Electronics and Physics.
 
  
