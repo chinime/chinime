@@ -5,9 +5,8 @@
  
  How to reach me:
  
- Mail: chinmoybiswas@ug.eee.buet.ac.bd
+ Mail: chinmoybiswas01.cb@gmail.com
  
- Facebook: https://www.facebook.com/chinmoy.biswas.3194/
 
 <!---
 chinime/chinime is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
